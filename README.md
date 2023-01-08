@@ -1,5 +1,8 @@
 
-![](https://figure.pages.dev/img/post3.png))
+![](https://figure.pages.dev/github_readmi/Atri.jpg)
+……地球也包括我吗？
+对我而言，你就是地球的中心。
+
 
 
 
