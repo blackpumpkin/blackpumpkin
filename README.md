@@ -1,6 +1,5 @@
-### Hi there 👋
 
-![](https://cdn.jsdelivr.net/gh/Kyomotoi/CDN@master/noting/sena_mail0.jpg)
+![](https://figure.pages.dev/img/post3.png))
 
 
 
